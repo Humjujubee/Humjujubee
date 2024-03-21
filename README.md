@@ -1,4 +1,4 @@
-### Let's show everyone what we gots in store
+### Let's make some magic happen and show people how smart we really are 
 
 <!--
 **Humjujubee/Humjujubee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
